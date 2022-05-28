@@ -1,0 +1,2 @@
+# UAS_Kecerdasan_Buatan
+Windi Risma Wati_191011401795_06TPLE025
